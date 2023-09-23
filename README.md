@@ -14,7 +14,7 @@
    <a href="https://immaterialdemandingmemory--bdaajfjais.repl.co/bypass">Link 8 (updated 21/9/2023)</a><br>
    <a href="https://smoggyselfassuredrobodoc--bdaajfjais.repl.co/bypass">Link 9 (updated 21/9/2023)</a><br>
    <a href="https://infamousroyalsigns--bdaajfjais.repl.co/bypass">Link 10 (updated 21/9/2023)</a><br>
-   <a href="https://heilhitler.repl.com/bypass">link for hitler (updated 1942)</a>a><br>
+   <a href="https://heilhitler.repl.co/bypass">link for hitler (updated 1942)</a>a><br>
 </details>
 
 ## Help this project
